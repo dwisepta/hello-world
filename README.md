@@ -3,4 +3,8 @@
 Hi Everyone!
 
 I'm Septa, I will ready to be learn about coding
-sale stock indonesia jos banget 
+sale stock indonesia.
+
+belajar visual studio
+
+test
